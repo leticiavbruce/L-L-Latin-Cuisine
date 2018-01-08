@@ -1,2 +1,2 @@
-# L-L-Latin-Cuisine
+# L & L Latin-Cuisine
 fresh good food, tamales, salsa, desserts, etc.
